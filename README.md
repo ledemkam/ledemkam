@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Soft Skills
-- 📫 How to reach me: ...ledmekam@gmail.com
+- 📫 How to reach me: ...ledemkam@gmail.com
 - 😄 Pronouns: ...Her/She
 - ⚡ Fun fact: ...I let myself be surprised
 -->
