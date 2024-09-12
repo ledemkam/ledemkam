@@ -2,7 +2,7 @@
 
 
 
-- 🔭 I’m currently working on my course
+- 🔭 I’m currently working on my projects
 - 🌱 I’m currently learning  Full-Stack Web
 - 👯 I’m looking to collaborate on webproject
 
